@@ -1,1 +1,0 @@
-# Kay-tFormu-Proje-Java
